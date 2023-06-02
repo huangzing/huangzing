@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @huangzing, a student from BIT.
-- 🌱 Everything is so hard for me, so I must try my best to do better.
+- 👋 Hi, I’m @huangzing, a student.
+- 🌱 Everything is too hard for me, so I must try my best to do it better.
 - 😭 If you find something I did is wrong, please let me know, any simple mistake is a really big problem for me!
 - 😨 Sorry for my broken English.
 - 🤣 Hope it's a good start!
